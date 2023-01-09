@@ -16,4 +16,4 @@
 
 ----
 
-[Other Sets](https://shivioua.github.io/sets/)
+[Other Sets](https://shivioua.github.io)
