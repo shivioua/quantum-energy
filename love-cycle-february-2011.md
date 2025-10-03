@@ -5,11 +5,10 @@
 Date: 2011-02-13    
 Tags: dnb, neuro funk, liquid dnb    
 
-[![Quantum Energy](https://drive.google.com/uc?export=download&id=0BzB_BNja1f1KQjRza1RLbThnTTA)](https://www.mixcloud.com/quantumenergy/love-cycle-february-2011/)
+[![Quantum Energy - Love Cycle (February 2011)](./img/love-cycle-february-2011.jpg)](https://www.mixcloud.com/quantumenergy/love-cycle-february-2011/)
 
 * [**Listen on MIXCLOUD**](https://www.mixcloud.com/quantumenergy/love-cycle-february-2011/) 
-* [**Listen on SOUNDCLOUD**](https://soundcloud.com/quantumenergy/quantum-energy-love-cycle) 
-* [**Download MP3 (93MB, 78MIN)**](https://1drv.ms/u/s!AmzuuXrjf51v2LMjW6c5ZC0Kd2-BdQ?e=bKXoUJ)
+* [**Download MP3**](https://1drv.ms/u/s!AmzuuXrjf51v2LMjW6c5ZC0Kd2-BdQ?e=bKXoUJ)
 
 TRACKLIST:  
 
