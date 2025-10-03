@@ -1,15 +1,14 @@
-# Winter solstice (December 2012)
+# Winter Solstice (December 2012)
 
 ----
 
 Date: 2012-12-23    
 Tags: dnb, jazzy dnb, liquid dnb, tech step    
 
-[![Quantum Energy](https://drive.google.com/uc?export=download&id=0BzB_BNja1f1KN0pPS0t2bjN0SW8)](https://www.mixcloud.com/quantumenergy/winter-solstice-december-2012/)
+[![Quantum Energy - Winter Solstice (December 2012)](./img/winter-solstice-december-2012.jpg)](https://www.mixcloud.com/quantumenergy/winter-solstice-december-2012/)
 
-* [**DOWNLOAD (186MB, 82min)**](https://1drv.ms/u/s!AmzuuXrjf51v2LMsAsBUQG8ljYvhKA?e=VctjoN)
-* [**MIXCLOUD (82min)**](https://www.mixcloud.com/quantumenergy/winter-solstice-december-2012/)
-
+* [**Listen on MIXCLOUD**](https://www.mixcloud.com/quantumenergy/winter-solstice-december-2012/)
+* [**Download MP3**](https://1drv.ms/u/s!AmzuuXrjf51v2LMsAsBUQG8ljYvhKA?e=VctjoN)
 
 TRACKLIST:  
 
