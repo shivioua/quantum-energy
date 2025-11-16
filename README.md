@@ -6,7 +6,9 @@
 
 * **[Modern Rock & Roll (July 2021)](./modern-rock-and-roll-july-2021.md)**
 * [Lick The Groove (May 2021)](./lick-the-groove-may-2010.md)
+* [Tribute to CDQ Burakowska (April 2021)](./tribute-to-cdq-burakowska-april-2021.md)
 * [Counter Plus Plus (March 2021)](./counter-plus-plus-march-2021.md)
+* [Vinylegg (April 2020)](./vinylegg-april-2020.md)
 * [Two Hearts (August 2018)](./two-hearts__august-2018.md)
 * [Winter solstice (December 2012)](./winter-solstice-december-2012.md)
 * [Everyday Something New (November 2011)](./everyday-something-new-november-2011.md)
