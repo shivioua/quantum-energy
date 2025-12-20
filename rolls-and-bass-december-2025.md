@@ -3,7 +3,8 @@
 ----
 
 Date: *2025-12-19*  
-Genres: *#Drumm & Bass*, *#DNB*, *#Liquid Bass*, *#Pop*, *#BJJ*, *#Workout*
+Genres: *#Drumm & Bass*, *#DNB*, *#Liquid Bass*, *#Pop*
+Tags: *#BJJ*, *#Workout*
 
 [![Shivioua - Rolls & Bass (December 2025)](./img/rolls-and-bass-december-2025.png)](https://www.mixcloud.com/shivioua/fresh-dance-music-rolls-and-bass-december-2025/)
 
