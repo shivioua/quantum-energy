@@ -4,7 +4,8 @@
 
 # Sets
 
-* **[Modern Rock & Roll (July 2021)](./modern-rock-and-roll-july-2021.md)**
+* **[Rolls & Bass (December 2025)](./rolls-and-bass-december-2025.md)**
+* [Modern Rock & Roll (July 2021)](./modern-rock-and-roll-july-2021.md)
 * [Lick The Groove (May 2021)](./lick-the-groove-may-2010.md)
 * [Tribute to CDQ Burakowska (April 2021)](./tribute-to-cdq-burakowska-april-2021.md)
 * [Counter Plus Plus (March 2021)](./counter-plus-plus-march-2021.md)
