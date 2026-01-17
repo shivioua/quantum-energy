@@ -6,12 +6,13 @@ Date: *2025-12-19*
 Genres: *#Drumm & Bass*, *#DNB*, *#Liquid Bass*, *#Pop*
 Tags: *#BJJ*, *#Workout*
 
-[![Shivioua - Rolls & Bass (December 2025)](./img/rolls-and-bass-december-2025.png)](https://www.mixcloud.com/shivioua/fresh-dance-music-rolls-and-bass-december-2025/)
+[![Shivioua - Rolls & Bass (December 2025)](./img/rolls-and-bass-december-2025.png)](https://www.youtube.com/watch?v=nN8Ui4-HmyM)
 
 
 ### Listen
 
-* [**Listen on MIXCLOUD**](https://www.mixcloud.com/shivioua/quantum-energy-rolls-bass-december-2025/)
+* [**YouTube**](https://www.youtube.com/watch?v=nN8Ui4-HmyM)
+* [**MIXCLOUD**](https://www.mixcloud.com/shivioua/quantum-energy-rolls-bass-december-2025/)
 
 **Tracklist:**  
 
