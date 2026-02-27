@@ -5,13 +5,24 @@
 Date: 2011-02-13    
 Tags: dnb, neuro funk, liquid dnb    
 
+----
+
 [![Quantum Energy - Love Cycle (February 2011)](./img/love-cycle-february-2011.jpg)](https://youtu.be/iM6WP0YmFNQ)
 
-* [**Listen on YOUTUBE**](https://youtu.be/iM6WP0YmFNQ) 
-* [**Listen on MIXCLOUD**](https://www.mixcloud.com/quantumenergy/love-cycle-february-2011/) 
-* [**Download MP3**](https://1drv.ms/u/s!AmzuuXrjf51v2LMjW6c5ZC0Kd2-BdQ?e=bKXoUJ) 
+----
 
-TRACKLIST:  
+Love Cycle is a special chapter of the Quantum Energy series, recorded in February 2011 — just before Valentine’s Day and shortly after a beautiful New Year’s Eve spent in Cracow, followed by a snowy snowboard escape with family and friends to Białka Tatrzańska.
+
+This set reflects that moment in time: full of love, warmth, motion and connection. It’s a personal time capsule capturing post-holiday emotions and pre-Valentine anticipation, translated into bass, melody and rhythm.
+
+Expect a dynamic journey through drum and bass, blending liquid, neurofunk and energetic vibes — from emotional atmospheres to powerful drops and raw energy.
+
+**Listen on**:
+
+* [**YOUTUBE**](https://youtu.be/iM6WP0YmFNQ) 
+* [**MIXCLOUD**](https://www.mixcloud.com/quantumenergy/love-cycle-february-2011/) 
+
+**TRACKLIST**  
 
 * tyler straub – trusted judgement (original mix)
 * jenna g – in love (original mix)
