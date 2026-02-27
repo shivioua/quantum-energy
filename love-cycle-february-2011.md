@@ -17,7 +17,7 @@ This set reflects that moment in time: full of love, warmth, motion and connecti
 
 Expect a dynamic journey through drum and bass, blending liquid, neurofunk and energetic vibes — from emotional atmospheres to powerful drops and raw energy.
 
-**Listen on**:
+**Listen on**  
 
 * [**YOUTUBE**](https://youtu.be/iM6WP0YmFNQ) 
 * [**MIXCLOUD**](https://www.mixcloud.com/quantumenergy/love-cycle-february-2011/) 
