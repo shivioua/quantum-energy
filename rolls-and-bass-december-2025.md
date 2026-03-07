@@ -12,6 +12,13 @@ Tags: *#BJJ*, *#Workout*
 
 ----
 
+### Listen on
+
+* [**YOUTUBE**](https://www.youtube.com/watch?v=nN8Ui4-HmyM)
+* [**MIXCLOUD**](https://www.mixcloud.com/shivioua/quantum-energy-rolls-bass-december-2025/)
+
+### Description
+
 This DJ set was recorded during a unique [Ze Radiola](https://www.instagram.com/zeradiola/) / [Dragon''s Den](https://www.instagram.com/dragons_den_wawa/) / [G-Team](https://www.instagram.com/g_team_jj/) club Christmas sparring session at Cybernetyki street in Warsaw.
 
 Drum & bass, liquid vibes, energy, red lights, tatami, and constant motion are keywords that describes this session best.
@@ -23,11 +30,6 @@ It is perfect as workout music, training background, or simply a deep dive into 
 Compilation was recorded live during BJJ No-Gi sparrings, surrounded by sweat, vinyls, sound systems, and people who came to move and meet with friends that share some passion.
 
 If you train, roll, lift, or just need music that pushes forward – this one’s for you.
-
-### Listen on
-
-* [**YOUTUBE**](https://www.youtube.com/watch?v=nN8Ui4-HmyM)
-* [**MIXCLOUD**](https://www.mixcloud.com/shivioua/quantum-energy-rolls-bass-december-2025/)
 
 ### TRACKLIST  
 
